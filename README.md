@@ -31,12 +31,13 @@ I am exceptional at transforming ideas and concepts into award-winning designs. 
 
 ### RELEVANT EMPLOYMENT
 **Graphic designer, Community Resource Center, Encinitas – volunteer position	July 2017-present**
-Following identity guidelines, I copy-edit and design print- and web-marketing material. I also update the design and content of the WordPress website for this 40-year-old nonprofit that helps people with low incomes, the homeless and domestic violence victims
+* Following identity guidelines, I copy-edit and design print- and web-marketing material. I also update the design and content of the WordPress website for this 40-year-old nonprofit that helps people with low incomes, the homeless and domestic violence victims
 
-**Graphic designer, Outdoor Outreach, San Diego – paid internship	April-May 2018**	Following identity guidelines, I designed print- and web-marketing materials for this 20-year-old nonprofit that has provided more than 3,015 recreational outings for more than 10,500 underprivileged youth
+**Graphic designer, Outdoor Outreach, San Diego – paid internship	April-May 2018**	
+* Following identity guidelines, I designed print- and web-marketing materials for this 20-year-old nonprofit that has provided more than 3,015 recreational outings for more than 10,500 underprivileged youth
 
 **News designer, San Diego Union-Tribune - full time 2000-2006**
-Originally hired as a metro section designer, I advanced to designing the front pages of the A section, sports 
+* Originally hired as a metro section designer, I advanced to designing the front pages of the A section, sports 
 and business sections. Before becoming a stay-at-home mother, I was the lead designer of an 8-page special section
 
 

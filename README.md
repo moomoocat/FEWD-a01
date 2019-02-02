@@ -2,7 +2,7 @@
 FEWDII Assignment #1
 
 
-![photo of Amie DeFrain](http://amiedefrain.com/wp-content/uploads/2018/09/gallery_my-logo.png)
+![photo of Amie DeFrain](http://mousewax.com/FEWDII/amieface.png)
 
 # Amie DeFrain
 ## _Graphic Designer_

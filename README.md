@@ -2,7 +2,7 @@
 FEWDII Assignment #1
 
 
-![photo of Amie DeFrain](http://
+![photo of Amie DeFrain](https://github.com/moomoocat/FEWD-a01/edit/modify-readme/README.md/to/download.png)
 # Amie DeFrain
 ## _Graphic Designer_
 [amiedefrain.com](http://amiedefrain.com)

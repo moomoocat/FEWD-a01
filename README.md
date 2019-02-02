@@ -2,7 +2,7 @@
 FEWDII Assignment #1
 
 
-![photo of Amie DeFrain](images/download.png)
+![photo of Amie DeFrain](/download.png)
 # Amie DeFrain
 ## _Graphic Designer_
 [amiedefrain.com](http://amiedefrain.com)
